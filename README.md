@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CALR630730HPLHZD06
+CALR630730HPLHZD06
